@@ -30,5 +30,8 @@ discord: Maemi_4601 (instead of _ use the sharp.. u know)
 
 **other social media**
 [youtube](https://www.youtube.com/channel/UCJ7bZ7Xg7ggbU8OZMy2fUsg "Maemi no Yume")
+
 [soundcloud](https://soundcloud.com/maemi_no_yume "Maemi <3")
+
 [twitter](https://twitter.com/Maemi_no_yume "me again")
+
